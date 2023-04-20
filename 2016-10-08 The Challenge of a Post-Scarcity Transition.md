@@ -14,7 +14,7 @@ That was the day I learned that the wooden crate that filled up most of the room
 
 "The future is already here," William Gibson has often remarked, "it's just not evenly distributed yet."
 
-https://www.youtube.com/watch?v=2efhrCxI4J0
+https://user-images.githubusercontent.com/134362/233251496-32ff8da4-92d4-4dd1-a2e8-47e799cd4686.mp4
 
 It's easy to classify my time at the bank as one of David Graeber's "bullshit jobs." At one level it certainly was. But I think it also highlights the fact that a post-scarcity world is only here right now for *some* people. For the rest of us, the uneven distribution of post-scarcity leads it to play somewhat contradictory roles in our lives.
 
